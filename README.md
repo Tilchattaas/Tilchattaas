@@ -1,6 +1,6 @@
 - 👋 Hi, We are @Tilchattaas
 - 👀 We are  interested in developing products for you 
-- 💞️ I’m looking to collaborate on tilchattaas@gmail.com
+- 💞️ we are looking to collaborate on tilchattaas@gmail.com
 - 📫 How to reach me mail krdo bhaii mast
 
 
